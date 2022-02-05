@@ -1,0 +1,1 @@
+# Simple-And-Easy-To-Use-Qlik-QSDA2019-Practice-Test-Questions
